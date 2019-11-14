@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Lasagana
+2. Chess
+3. Mac and Cheese
